@@ -1,0 +1,1 @@
+# wayan01.github.io
